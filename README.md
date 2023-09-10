@@ -1,6 +1,6 @@
 ### 🌵🌵🌵 __I love nature__ 🌲🌲🌲
 #  𓆝 𓆟 𓆞 𓆝 
-        
+# ꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷        
 ## ----> My current project is learning how to code in Python 🐍
 ## ----> I am interested in learning more about cognitive/behavioral neurobiology! I am fascinated with the diverse ways that humans compute thoughts and process the stimuli around them. I hope one day I will be able to code an algorithm that will allow us to replicate the continuously changing maze of neurons of a developing human brain. 
 ## ----> I love to read psychological thrillers and romances and write in my free time. I also love to go biking on my mountain bike and have picnics with my friends. I love meeting new people so please reach out if you want to talk about anything I listed about :)
