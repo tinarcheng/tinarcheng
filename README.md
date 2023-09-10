@@ -1,4 +1,17 @@
 ### __I love nature__ 🌲🌲🌲
+                ／＞　 フ
+               | 　_　_| 
+             ／` ミ＿xノ 
+             /　　　　 |
+            /　 ヽ　　 ﾉ
+           │　　|　|　|
+        ／￣|　　 |　|　|
+        (￣ヽ＿_ヽ_)__)
+        ＼二)
+        
+----> My current project is learning how to code in Python 🐍
+----> I am interested in learning more about cognitive/behavioral neurobiology! I am fascinated with the diverse ways that humans compute thoughts and process the stimuli around them. I hope one day I will be able to code an algorithm that will allow us to replicate the continuously changing maze of neurons in a developing human brain. 
+---->
 ![click for a surprise!](https://www.pinterest.com/pin/594193744604802082/)
 
 <!--
