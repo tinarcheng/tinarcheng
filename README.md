@@ -1,5 +1,5 @@
 ### __I love nature__ 🌲🌲🌲
-![click for a surprise!](https://www.pinterest.com/pin/cat--675540012864683137/](https://www.pinterest.com/pin/594193744604802082/)
+![click for a surprise!](https://www.pinterest.com/pin/594193744604802082/)
 
 <!--
 **tinarcheng/tinarcheng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
