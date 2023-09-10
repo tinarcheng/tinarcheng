@@ -1,5 +1,15 @@
 ### __I love nature__ 🌲🌲🌲
 #  𓆝 𓆟 𓆞 𓆝 
+# ⁣⠀⠀⠀ (\/)
+# ⠀⠀⠀ (•ㅅ•)      Don’t talk to
+# ＿ノヽ ノ＼＿      me or my son
+# /  / ⌒Ｙ⌒ Ｙ  ヽ     ever again.
+# ( 　(三ヽ人　 /　  |
+# |　ﾉ⌒＼ ￣￣ヽ   ノ
+# ヽ＿＿＿＞､＿_／
+# ⠀⠀ ｜( 王 ﾉ〈  ⠀ (\/)
+# ⠀⠀/ﾐ`ー―彡\ ⠀(•ㅅ•)
+# ⠀⠀/ ╰    ╯ \⠀⠀ /    \>
         
 ## ----> My current project is learning how to code in Python 🐍
 ## ----> I am interested in learning more about cognitive/behavioral neurobiology! I am fascinated with the diverse ways that humans compute thoughts and process the stimuli around them. I hope one day I will be able to code an algorithm that will allow us to replicate the continuously changing maze of neurons in a developing human brain. 
