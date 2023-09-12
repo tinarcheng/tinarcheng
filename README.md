@@ -9,6 +9,7 @@
 # .　　　•　° ★　•  ☄
 # ▁▂▃▄▅▆▇▇▆▅▄▃▁▂.
 
+#How to reach out to me: trchen27@colby.edu
 ## ![click for a surprise!](https://www.pinterest.com/pin/594193744604802082/)
 
 <!--
