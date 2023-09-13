@@ -10,7 +10,7 @@
 # ▁▂▃▄▅▆▇▇▆▅▄▃▁▂.
 
 How to reach out to me: trchen27@colby.edu
-## ![click for a surprise!](https://www.pinterest.com/pin/594193744604802082/)
+## ![click for a surprise!](https://www.rd.com/wp-content/uploads/2023/04/Hilarious-Cat-Memes-7.jpg?fit=700%2C700)
 
 <!--
 **tinarcheng/tinarcheng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
