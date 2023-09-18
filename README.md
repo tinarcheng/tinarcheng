@@ -10,7 +10,7 @@
 # ▁▂▃▄▅▆▇▇▆▅▄▃▁▂.
 
 How to reach out to me: trchen27@colby.edu
-## ![click for a surprise!](https://pbs.twimg.com/media/EnY83TFXcAEczLM.jpg)
+## [click for a surprise!](https://pbs.twimg.com/media/EnY83TFXcAEczLM.jpg)
 
 <!--
 **tinarcheng/tinarcheng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
